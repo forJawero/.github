@@ -1,0 +1,1 @@
+Welcome to Jawero, where innovation meets convenience in the world of shopping. At Jawero, we're redefining the shopping experience, empowering both buyers and sellers with a groundbreaking concept that transforms the way we buy and sell goods.
